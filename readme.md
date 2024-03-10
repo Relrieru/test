@@ -1,0 +1,2 @@
+asal bogor
+universitas gunadarma
